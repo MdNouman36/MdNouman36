@@ -32,3 +32,5 @@
 
 - GitHub: https://github.com/MdNouman36
 - Email: md.nouman.0603@gmail.com
+- LinkedIn: [Mohammed Nouman MN]
+  https://www.linkedin.com/in/mohammed-nouman-m-n-5b5b45386
